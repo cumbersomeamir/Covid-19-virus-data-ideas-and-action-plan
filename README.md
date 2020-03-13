@@ -1,0 +1,2 @@
+# Covid-19-virus-data-ideas-and-action-plan
+This repository has been created to have an impact on the current coronavirus (Covid-19) which has found to be originated in the city of Wuhan,China. I have been following the news everyday and it makes me really sad to not be able to help the people in need. I think if we pool in out ideas, thoughts and observations we can save innumerable lives or I would personally say that if we are able to save even a single life due to our efforts it would be a major accomplishment.
